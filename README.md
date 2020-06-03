@@ -1,2 +1,2 @@
 # Hello-World
-Welcome to the owrld, young Prince
+Welcome to the world, young Prince
